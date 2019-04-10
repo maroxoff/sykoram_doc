@@ -1,1 +1,0 @@
-# sykoram_docs
